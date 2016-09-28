@@ -1,6 +1,6 @@
 Benvolgut agrupament Montgrí.
 
-En motiu de la gran trobada de circs que es realitzará durant el curs 2016-2017 a Torroella de Montgrí, des de Minyones Escoltes i Guies solicitem la vostre ajuda per tal de col·laborar en el bon funcionament d'aquest projecte.
+En motiu de la gran trobada de circs que es realitzará durant el curs 2016-2017 a Torroella de Montgrí, des de Minyones Escoltes i Guies solicitem la vostra ajuda per tal de col·laborar en el bon funcionament d'aquest projecte.
 
 Les tasques que caldrá realitzar són les seguents:
 
